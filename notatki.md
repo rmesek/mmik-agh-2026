@@ -1,0 +1,4 @@
+- 2 pkt za odpowiedź
+- kartkówki
+- zadania na teams (Assignments)
+- 3 plusy z 10/03/2026
